@@ -15,7 +15,18 @@
  <br><p align="center">${\textsf{\color{#B9E9FA}ㅤㅤ◞    ꜝꜞ iwec at all times . ˳  𓏲  ˑ }}$
 
 <br><p align="center">${\textsf{\color{#B9E9FA}      ︶⊹︶︶⠀୨ Stamps below ୧⠀︶︶⊹︶}}$
-<br><p align="center"><img width="99" src="https://github.com/user-attachments/assets/95f8ddaf-18a4-4950-add0-859aa9716cce" /><img width="99" src="https://github.com/user-attachments/assets/ffa42089-e9af-42ff-8b19-768316fa7796" /><img width="99" src="https://github.com/user-attachments/assets/60d83f28-f7ca-42ae-88a7-cd0cce50c897" /><img width="99" src="https://github.com/user-attachments/assets/4df22200-f2f3-4dbb-b9a2-1faf6268699b" /><img width="150" src="https://github.com/user-attachments/assets/3c008ac1-0937-47d9-b015-6f1c0a98e0a7" /><img width="150" src="https://github.com/user-attachments/assets/77f5120d-bc53-4427-80cc-86ef0924c89a" /><img width="99" src="https://github.com/user-attachments/assets/2d7db9ef-7811-4358-96ff-e576dbc0b7f2" />
+<br><p align="center"><img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/322eec3d-9ae3-40a1-936a-ef82c8fd0419" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/d2ec3f7a-fe3a-432e-8342-2ebffa64bf24" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/d59fa3e6-4d80-4dfc-a826-b2163bca4242" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/190af4d9-a98e-4862-8749-eef1ae13f5ae" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/d11d11ff-3301-4557-91ca-7743d14e8d74" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/ce1f9143-3b93-4d72-8dd0-75d21410d3e3" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e69b82f1-6147-40b0-9149-c5f821f4bcfe" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/97353fa2-44b5-4778-a11f-6ec476571589" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/93deb98e-fd2c-4879-ae47-fc977d220d3b" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c7bafaf5-0238-4d1a-9d3d-6e969677bfda" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/17445dc2-0f83-4786-8332-f9dc6674526d" />
+
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/17310f68-526f-4387-a0be-9256d9c9e139" />
 
 
