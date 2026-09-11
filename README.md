@@ -4,15 +4,15 @@
 <br><p align="right">${\textsf{\color{#8C5FED} Bigender}}$ ${\textsf{\color{#6D3DD4}Omnisexual}}$
 <br><p align="center"><img width="1000" src="https://github.com/user-attachments/assets/1b50ec8c-afd2-4653-b8b5-7f0f3b3f685b" />
 <br><p align="center"><img width="640" src="https://github.com/user-attachments/assets/e5a3e195-4ae8-4315-9946-e4d528a94aa2" />
-<br><p align="left">${\textsf{\color{#F5A6F0} Usually non verbal unless close . }}$ 
+<br><p align="left">${\textsf{\color{#F5A6F0} I am NOT a nice person . Do not expect me to treat you kindly if I feel bothered . }}$ 
 <br><p align="center">${\textsf{\color{#C3A6F5} I block FREELY . Don't harass me or friends if you got blocked .}}$ 
 <br><p align="right">${\textsf{\color{#A6D3F5} Paranoid + mood swings VERY often . }}$ 
 <br><p align="center"> <img width="1000" src="https://github.com/user-attachments/assets/87c0da31-6988-446f-a6d2-ccfbde6c119c" />
 <br><p align="center">${\textsf{\color{#9CD5FF}     ︶⊹︶︶⠀୨ Before you int w/ me... ୧⠀︶︶⊹︶}}$
 
-<br><p align="center">${\textsf{\color{#B9F5FA}  ۫   𐑺  dni / iwec ˑ   ⌕ i am NOT a nice person ࣭   ᘐ }}$ 
+<br><p align="center">${\textsf{\color{#B9F5FA}  ۫   𐑺  she / him / it ˑ   ⌕ I use slurs I can reclaim . ࣭   ᘐ }}$ 
 
- <br><p align="center">${\textsf{\color{#B9E9FA}ㅤㅤ◞    ꜝꜞ Usually w/ Partners or party . ˳  𓏲  ˑ }}$
+ <br><p align="center">${\textsf{\color{#B9E9FA}ㅤㅤ◞    ꜝꜞ iwec at all times . ˳  𓏲  ˑ }}$
 
 <br><p align="center">${\textsf{\color{#B9E9FA}      ︶⊹︶︶⠀୨ Stamps below ୧⠀︶︶⊹︶}}$
 <br><p align="center"><img width="99" src="https://github.com/user-attachments/assets/95f8ddaf-18a4-4950-add0-859aa9716cce" /><img width="99" src="https://github.com/user-attachments/assets/ffa42089-e9af-42ff-8b19-768316fa7796" /><img width="99" src="https://github.com/user-attachments/assets/60d83f28-f7ca-42ae-88a7-cd0cce50c897" /><img width="99" src="https://github.com/user-attachments/assets/4df22200-f2f3-4dbb-b9a2-1faf6268699b" /><img width="150" src="https://github.com/user-attachments/assets/3c008ac1-0937-47d9-b015-6f1c0a98e0a7" /><img width="150" src="https://github.com/user-attachments/assets/77f5120d-bc53-4427-80cc-86ef0924c89a" /><img width="99" src="https://github.com/user-attachments/assets/2d7db9ef-7811-4358-96ff-e576dbc0b7f2" />
